@@ -1,3 +1,3 @@
-Exercise 3 & 4
+Exercise 3 (part 1 and 2)
 
 
